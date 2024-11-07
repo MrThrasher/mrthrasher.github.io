@@ -1,6 +1,7 @@
 ---
 layout: post
 title:  "MS SQL on Apple silicon"
+date:   2022-12-05 13:00:26 +0200
 category: development
 ---
 
