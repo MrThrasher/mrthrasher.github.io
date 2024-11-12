@@ -3,6 +3,7 @@ layout: post
 title:  "Gatecreeper at Schlachthof, Wiesbaden"
 date:   2024-11-07 17:42:26 +0200
 category: metal
+tags: metal konzert
 ---
 
 ### Gatecreeper - Dark Superstition Tour 2024

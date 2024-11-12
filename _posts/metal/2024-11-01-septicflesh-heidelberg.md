@@ -3,6 +3,7 @@ layout: post
 title:  "Septicflesh at halle02, Heidelberg"
 date:   2024-11-01 17:42:26 +0200
 category: metal
+tags: metal konzert
 ---
 
 ### Septicflesh - Modern Primitive Tour 2024
