@@ -6,21 +6,19 @@ category: metal
 tags: metal konzert
 ---
 
-### Gatecreeper - Dark Superstition Tour 2024
 
-Leider machte Gatecreeper nicht in unserer Nähe halt, so dass wir die ca. 200 km nach Wiesbaden in den [Schlachthof](https://schlachthof-wiesbaden.de/) fahren mussten, um Gatecreeper sehen zu können. Wir wurden allerdings nicht enttäuscht. Das komplette Package der Tour ist einfach nur genial und passt sehr gut zusammen. Als Support hatten Gatecreeper nämlich dabei
+Da Gatecreeper auf ihrer Dark Superstition Tour keinen Halt in unserer unmittelbaren Nähe einplante, führte uns der Weg kurzerhand die rund 200 km nach Wiesbaden in den [Schlachthof](https://schlachthof-wiesbaden.de/). Ein Aufwand, der sich mehr als gelohnt hat.
 
-- [Enforded](https://www.instagram.com/enforcedrva/?hl=de)
-- [200 Stab Wounds](https://www.instagram.com/200stabwounds/?hl=de)
+Der Schlachthof erwies sich dabei als ideale Kulisse für den Abend. Der kleine Club verströmte genau das richtige Flair für einen solchen Konzertabend – intim, authentisch und mit einer Atmosphäre, die größeren Venues schlicht fehlt. Hinzu kam ein durchweg überzeugender Sound, der allen drei Bands gleichermaßen zugutekam und den Abend klanglich auf ein hohes Niveau hob.
 
-#### Enforced
+## [Enforded](https://www.instagram.com/enforcedrva/?hl=de)
 
-Den Anfang machten Enforced und die hatten richtig Bock. Gute Setlist. Keine Zeit verschwendet. 30 Minuten Vollgas.
+Den Auftakt des Abends machten Enforced, und die Band ließ von der ersten Sekunde an keinen Zweifel an ihrer Motivation. In knapp 30 Minuten zündeten sie ein kompromissloses Set ab – keine Verschnaufpausen, keine Spielereien, nur pure Energie. Eine gelungene Eröffnung, die die Messlatte direkt hochlegte.
 
-#### 200 Stab Wounds
+## [200 Stab Wounds](https://www.instagram.com/200stabwounds/?hl=de)
 
-Danach folgte 200 Stab Wounds, die auch extrem motiviert wirkten, mich allerdings nicht so stark wie Enforced überzeugen konnten.
+Mit 200 Stab Wounds folgte die zweite Supportband, die ebenfalls hochmotiviert ans Werk ging und das Publikum weiter aufheizte. Wenngleich sie mich persönlich nicht ganz so stark mitreißen konnten wie Enforced, war auch ihr Auftritt solide und passte gut in den Abend.
 
-#### Gatecreeper
+## [Gatecreeper](https://www.instagram.com/gatecreeper?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 
-Zu guter Letzt setzte dann Gatecreeper alles daran, gar keinen Zweifel aufkommen zu lassen, wer hier das Sagen hat und legten los wie die Feuerwehr. Die Setlist war sehr gut gewählt, so dass keine Langweile aufkommen konnte. Ein sehr gelungenes Konzert. Der einzige Wehrmutstropfen war, dass Gatecreeper nur 60 Minuten spielten. Aber so ist es heute eben.
+Als Headliner ließen Gatecreeper dann keinen Zweifel daran, wer das Sagen hat. Mit einer durchdacht zusammengestellten Setlist, die keine Längen zuließ, lieferte die Band aus Arizona einen druckvollen und kurzweiligen Auftritt ab. Der einzige Wermutstropfen: Mit rund 60 Minuten Spielzeit hätte man sich als weit angereister Fan durchaus etwas mehr gewünscht. Dennoch – ein rundum gelungener Konzertabend, bei dem das gesamte Tourpaket stimmig und handverlesen wirkte.
